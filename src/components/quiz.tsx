@@ -27,21 +27,21 @@ Reasons I love you -
 1. YOUR TITS! YOUR TITS! YOUR TITS! YOUR TITS! YOUR TITS! YOUR TITS! YOUR TITS!
 2. Sometimes, I throw a lot of shade at you for this but your relentless-ness to do something coz you want to do it is so inspiring. From doing freelancing coz it made sense to you, to deciding on the US (yes you will still continue to receive shade for it). It's inspiring how you do shit which makes sense to you and most often don't give too many fucks about what the world thinks.
 3. How you think of our future.
-4. You let me use you and do things to you and you give me space to be unashamed and say this out loud on how I want to do all those dirty nasty things to you'll be give in when I hold you firmly.
-5. The inherent kindness and nurture you approach things. Ofcourse that helps my distance angsty self to be empathises more often that I deserve. But I see that towards your friends. Even when you were sharing your discontent with Namritha on the Sankey Thank walk, there was so much warmth and love in it which is so difficult to witness.
-6. You are my sunshine, my online sunshine..
-7. You work hard for us
-8. Your unwavering trust in us and never thinking of taking an out with respect to us.
-9. Your, I'll figure it out attitude with respect to things you want even when you don't have full clarity.
-10. You're never afraid to admit the things you don't know
-11. You can live with contradictions about yourself and about me.
-12. I love that I can look at you and know what you're thinking
-13. Your choice of Music. I re-discovered (and discovered new stuff) my love for Bollywood music through you again.
-14. Your acceptance of who I am (barring out harshness on smoking :P)
-15. How you make me feel safe.
-16. Your slight uptightness about not washing your pits in front of me. It's cute.
-17. You're always ready to work on yourself.
-18. You have a handle on us and your feelings even when I am unsure of it. I can't tell you how much that has helped.
+4. The inherent kindness and nurture you approach things. Ofcourse that helps my distance angsty self to be empathises more often that I deserve. But I see that towards your friends. Even when you were sharing your discontent with Namritha on the Sankey Thank walk, there was so much warmth and love in it which is so difficult to witness.
+5. You are my sunshine, my online sunshine..
+6. You work hard for us
+7. Your unwavering trust in us and never thinking of taking an out with respect to us.
+8. Your, I'll figure it out attitude with respect to things you want even when you don't have full clarity.
+9. You're never afraid to admit the things you don't know
+10. You can live with contradictions about yourself and about me.
+11. I love that I can look at you and know what you're thinking (most the times)
+12. Your choice of Music. I re-discovered (and discovered new stuff) my love for Bollywood music through you again.
+13. Your acceptance of who I am (barring out harshness on smoking :P)
+14. How you make me feel safe.
+15. Your slight uptightness about not washing your pits in front of me. It's cute.
+16. You're always ready to work on yourself.
+17. You have a handle on us and your feelings even when I am unsure of it. I can't tell you how much that has helped.
+18. You let me use you and do things to you and you give me space to be unashamed and say this out loud on how I want to do all those dirty nasty things to you'll be give in when I hold you firmly.
 19. Your ability to dream and be (almost) assured that you will be able to accomplish some of them.
 20. Your sexy-ness.
 21. Your quest to learn and question and accommodate diverse perspectives.
